@@ -1,5 +1,6 @@
 #Wssp
-<img width="2360" height="1640" alt="image" src="https://github.com/user-attachments/assets/67ddb985-8673-4d3c-8d47-b77de3935ad0" />
+<img width="2360" height="1640" alt="image" src="https://github.com/user-attachments/assets/2b0678b9-4359-444a-951b-d366582e7fc3" />
+
 <!--
 **YouHallucinatedHatred/YouHallucinatedHatred** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
