@@ -1,8 +1,8 @@
 
 #What Does Not Kill You Gives You Never Ending Nightmares
 <img width="2360" height="1640" alt="image" src="https://github.com/user-attachments/assets/d67049b2-cafc-4fb4-9348-cc145476ec27" />
+isn’t he so tuff 🥀
 
-+*+*ʸᵒᵘ ᵃʳᵉ ᵐʸ ᴰᵉˢᵗⁱⁿʸ*+*+
 <img width="180" height="212" alt="image" src="https://github.com/user-attachments/assets/718f72c1-2006-4348-b218-70c43531dedf" />
 
 
