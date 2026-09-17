@@ -1,13 +1,12 @@
 
 #What Does Not Kill You Gives You Never Ending Nightmares
 <img width="2360" height="1640" alt="image" src="https://github.com/user-attachments/assets/d67049b2-cafc-4fb4-9348-cc145476ec27" />
-What A Caring Uncle 🥳
+ₗₒₒₖ, ᵢ gₑₙᵤᵢₙₑₗy dₒ ₙₒₜ gᵢᵥₑ ₐ cᵣₐₚ ᵢf yₒᵤ wₐₙₜ ᵣₒ ₘₑₛₛ wᵢₜₕ ₘₑ, bᵤₜ dₒₙₜ ₚᵤₛₕ ₘₑ ₐᵣₒᵤₙd. ᵢ ᵣₕᵢₙₖ ₜₕᵢₛ ₑᵤₗₑ gₒₑₛ fₒᵣ ₐₙy ₚₑᵣₛₒₙ ₜbₕ, yₒᵤ ₛₕₒᵤₗd ₖₙₒw bₑₜₜₑᵣ+*+
 <img width="2360" height="1640" alt="image" src="https://github.com/user-attachments/assets/835dd6f0-9de3-4b1f-b75a-c10503dcf5db" />
 Bₐₙdₛ/ₛₒₙgₛ ᵢ ₑₙⱼₒy •••
 ₜₕₑ ₖᵢₗₗₑᵣₛ: ₐₗₗ ₜₕₑₛₑ ₜₕᵢₙgₛ ₜₕₐₜ ᵢᵥₑ dₒₙₑ +•
 ₜₕₑ ᵣₐᵣₑ ₒcₐₛₛᵢₒₙₛ: ₙₒₜᵢₒₙ •••
 ₜₕₑ ₗᵥᵢᵢₙg ₜₒₘbₛₜₒₙₑₛ:ₘy ₒᵣdᵢₙₐᵣy ₗᵢc ₑ
-ₗₒₒₖ, ᵢ gₑₙᵤᵢₙₑₗy dₒ ₙₒₜ gᵢᵥₑ ₐ cᵣₐₚ ᵢf yₒᵤ wₐₙₜ ᵣₒ ₘₑₛₛ wᵢₜₕ ₘₑ, bᵤₜ dₒₙₜ ₚᵤₛₕ ₘₑ ₐᵣₒᵤₙd. ᵢ ᵣₕᵢₙₖ ₜₕᵢₛ ₑᵤₗₑ gₒₑₛ fₒᵣ ₐₙy ₚₑᵣₛₒₙ ₜbₕ, yₒᵤ ₛₕₒᵤₗd ₖₙₒw bₑₜₜₑᵣ.
 
 <!--
 **YouHallucinatedHatred/YouHallucinatedHatred** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
