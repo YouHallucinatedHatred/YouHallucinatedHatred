@@ -5,7 +5,7 @@ What A Caring Uncle 🥳
 <img width="2360" height="1640" alt="image" src="https://github.com/user-attachments/assets/835dd6f0-9de3-4b1f-b75a-c10503dcf5db" />
 Bₐₙdₛ/ₛₒₙgₛ ᵢ ₑₙⱼₒy •••
 ₜₕₑ ₖᵢₗₗₑᵣₛ: ₐₗₗ ₜₕₑₛₑ ₜₕᵢₙgₛ ₜₕₐₜ ᵢᵥₑ dₒₙₑ +•
-ₜₕₑ ᵣₐᵣₑ ₒcₐₛₛᵢₒₙₛ: ₙₒₜᵢₒₙ
+ₜₕₑ ᵣₐᵣₑ ₒcₐₛₛᵢₒₙₛ: ₙₒₜᵢₒₙ •••
 ₜₕₑ ₗᵥᵢᵢₙg ₜₒₘbₛₜₒₙₑₛ:ₘy ₒᵣdᵢₙₐᵣy ₗᵢc ₑ
 
 
