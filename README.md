@@ -1,6 +1,6 @@
 
 #What Does Not Kill You Gives You Never Ending Nightmares
-<img width="1024" height="1024" alt="image" src="https://github.com/user-attachments/assets/2d289ee8-fef4-4a2f-803c-b54887696b5a" />
+
 
 
 ₗₒₒₖ, ᵢ gₑₙᵤᵢₙₑₗy dₒ ₙₒₜ gᵢᵥₑ ₐ cᵣₐₚ ᵢf yₒᵤ wₐₙₜ ᵣₒ ₘₑₛₛ wᵢₜₕ ₘₑ, bᵤₜ dₒₙₜ ₚᵤₛₕ ₘₑ ₐᵣₒᵤₙd. ᵢ ᵣₕᵢₙₖ ₜₕᵢₛ rᵤₗₑ gₒₑₛ fₒᵣ ₐₙy ₚₑᵣₛₒₙ ₜbₕ, yₒᵤ ₛₕₒᵤₗd ₖₙₒw bₑₜₜₑᵣ+*+
@@ -8,7 +8,7 @@
 Bₐₙdₛ/ₛₒₙgₛ ᵢ ₑₙⱼₒy •••
 ₜₕₑ ₖᵢₗₗₑᵣₛ: ₐₗₗ ₜₕₑₛₑ ₜₕᵢₙgₛ ₜₕₐₜ ᵢᵥₑ dₒₙₑ +•
 ₜₕₑ ᵣₐᵣₑ ₒcₐₛₛᵢₒₙₛ: ₙₒₜᵢₒₙ •••
-ₜₕₑ ₗᵥᵢᵢₙg ₜₒₘbₛₜₒₙₑₛ:ₘy ₒᵣdᵢₙₐᵣy ₗᵢc ₑ
+ₜₕₑ ₗᵥᵢᵢₙg ₜₒₘbₛₜₒₙₑₛ:ₘy ₒᵣdᵢₙₐᵣy ₗᵢc <img width="1024" height="1024" alt="image" src="https://github.com/user-attachments/assets/619e5fb7-4d7e-4b0a-bd8f-5101a7cc9b25" />
 
 <!--
 **YouHallucinatedHatred/YouHallucinatedHatred** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
