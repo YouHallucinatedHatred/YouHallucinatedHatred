@@ -7,7 +7,7 @@ Bₐₙdₛ/ₛₒₙgₛ ᵢ ₑₙⱼₒy •••
 ₜₕₑ ₖᵢₗₗₑᵣₛ: ₐₗₗ ₜₕₑₛₑ ₜₕᵢₙgₛ ₜₕₐₜ ᵢᵥₑ dₒₙₑ +•
 ₜₕₑ ᵣₐᵣₑ ₒcₐₛₛᵢₒₙₛ: ₙₒₜᵢₒₙ •••
 ₜₕₑ ₗᵥᵢᵢₙg ₜₒₘbₛₜₒₙₑₛ:ₘy ₒᵣdᵢₙₐᵣy ₗᵢc ₑ
-
+ₗₒₒₖ, ᵢ gₑₙᵤᵢₙₑₗy dₒ ₙₒₜ gᵢᵥₑ ₐ cᵣₐₚ ᵢf yₒᵤ wₐₙₜ ᵣₒ ₘₑₛₛ wᵢₜₕ ₘₑ, bᵤₜ dₒₙₜ ₚᵤₛₕ ₘₑ ₐᵣₒᵤₙd. ᵢ ᵣₕᵢₙₖ ₜₕᵢₛ ₑᵤₗₑ gₒₑₛ fₒᵣ ₐₙy ₚₑᵣₛₒₙ ₜbₕ, yₒᵤ ₛₕₒᵤₗd ₖₙₒw bₑₜₜₑᵣ.
 
 <!--
 **YouHallucinatedHatred/YouHallucinatedHatred** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
