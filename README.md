@@ -8,7 +8,7 @@
 Bₐₙdₛ/ₛₒₙgₛ ᵢ ₑₙⱼₒy •••
 ₜₕₑ ₖᵢₗₗₑᵣₛ: ₐₗₗ ₜₕₑₛₑ ₜₕᵢₙgₛ ₜₕₐₜ ᵢᵥₑ dₒₙₑ +•
 ₜₕₑ ᵣₐᵣₑ ₒcₐₛₛᵢₒₙₛ: ₙₒₜᵢₒₙ •••
-ₜₕₑ ₗᵥᵢᵢₙg ₜₒₘbₛₜₒₙₑₛ:ₘy ₒᵣdᵢₙₐᵣy ₗᵢc <img width="1024" height="1024" alt="image" src="https://github.com/user-attachments/assets/619e5fb7-4d7e-4b0a-bd8f-5101a7cc9b25" />
+ₜₕₑ ₗᵥᵢᵢₙg ₜₒₘbₛₜₒₙₑₛ:ₘy ₒᵣdᵢₙₐᵣy ₗᵢfe-|| <img width="1024" height="1024" alt="image" src="https://github.com/user-attachments/assets/619e5fb7-4d7e-4b0a-bd8f-5101a7cc9b25" />
 
 <!--
 **YouHallucinatedHatred/YouHallucinatedHatred** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
