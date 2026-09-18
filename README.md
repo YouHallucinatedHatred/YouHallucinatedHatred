@@ -2,7 +2,7 @@
 #What Does Not Kill You Gives You Never Ending Nightmares
 https://www.pinterest.com/ideas/purple-pixel-art-gif-banner/930113058981/
 
-<img width="2000" height="2000" alt="image" src="https://github.com/user-attachments/assets/8f32d759-462c-4e66-99fc-b68634131e94" />
+
 
 ₗₒₒₖ, ᵢ gₑₙᵤᵢₙₑₗy dₒ ₙₒₜ gᵢᵥₑ ₐ cᵣₐₚ ᵢf yₒᵤ wₐₙₜ ᵣₒ ₘₑₛₛ wᵢₜₕ ₘₑ, bᵤₜ dₒₙₜ ₚᵤₛₕ ₘₑ ₐᵣₒᵤₙd. ᵢ ᵣₕᵢₙₖ ₜₕᵢₛ rᵤₗₑ gₒₑₛ fₒᵣ ₐₙy ₚₑᵣₛₒₙ ₜbₕ, yₒᵤ ₛₕₒᵤₗd ₖₙₒw bₑₜₜₑᵣ+*+
 <img width="2360" height="1640" alt="image" src="https://github.com/user-attachments/assets/835dd6f0-9de3-4b1f-b75a-c10503dcf5db" />
