@@ -1,6 +1,5 @@
 
 #What Does Not Kill You Gives You Never Ending Nightmares
-https://www.pinterest.com/ideas/purple-pixel-art-gif-banner/930113058981/
 
 
 
