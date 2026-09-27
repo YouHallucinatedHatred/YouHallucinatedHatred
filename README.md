@@ -1,5 +1,6 @@
 
-#What Does Not Kill You Gives You Never Ending Nightmares
+#Chat you don’t judge my ships I won’t judge yours- [unless it’s proshipping or some crap..]<🎀
+
 <img width="2000" height="2000" alt="image" src="https://github.com/user-attachments/assets/50c8737f-4afb-4738-b031-9a8172be8294" />
 
 
